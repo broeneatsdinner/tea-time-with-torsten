@@ -17,8 +17,8 @@ _Pour hot water slowly into the teapot._
 "See the tea dance? It’s painting the water."  
 
 **Step 4: The Wait**  
-"Now we wait. One minute... then two...  
-Just like we wait for toast, or traffic lights to turn green."  
+"Now we wait. One minute... then two..."  
+"Just like we wait for toast, or traffic lights to turn green."  
 _Optional: use a sand timer or visual timer._  
 
 **Step 5: The Watch**  
